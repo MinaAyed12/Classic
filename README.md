@@ -1,1 +1,1 @@
-# Classic
+# Classic-One-Page-Template
